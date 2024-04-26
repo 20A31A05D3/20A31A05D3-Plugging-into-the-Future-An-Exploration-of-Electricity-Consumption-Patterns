@@ -1,0 +1,1 @@
+# 20A31A05D3-Plugging-into-the-Future-An-Exploration-of-Electricity-Consumption-Patterns
